@@ -1,4 +1,4 @@
-## Hi  👋 I am chiranjeevi C L
+## Hi  👋 I am CHIRANJEEVI C L
 ## A passionate developer 
 
 
